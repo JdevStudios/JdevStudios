@@ -1,4 +1,4 @@
-### contact information
+<h1> <center> contact information</center></h1>
 ### 
 ### Twitter  @JNigatu b
 ### Email: admin@adamalisra.com admin@landoforigins.net admin@blu.chat admin@chetechnologies.com admin@raw-net.com brucegr33n33@gmail.com
